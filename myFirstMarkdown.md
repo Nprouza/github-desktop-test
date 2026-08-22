@@ -33,5 +33,3 @@ iii. [America's Most Wanted] - [2Pac]
 **ONE GOAL**
 -
 - I want to finish the school year with a better understanding of coding.
-
-hcyuecygcygr
